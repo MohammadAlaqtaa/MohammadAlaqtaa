@@ -1,2 +1,2 @@
 - 👋 I’m @MohammadAlaqtaa
-- 📫 How to reach me ? inform me that you want to reach me.
+- 📫 How to reach me ? let me know.
